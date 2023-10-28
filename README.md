@@ -1,0 +1,1 @@
+# pescory.webgpt.cz
